@@ -1,1 +1,1 @@
-[Profile link](https://github.com/purnima2202)
+[Github Profile](https://github.com/purnima2202)
